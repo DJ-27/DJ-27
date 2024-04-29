@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DJ-27
+- 👋 Hi, I’m Dayal Joy (D.J)
 - 👀 I’m interested in computer science 
 - 🌱 I’m currently learning programming
 - 📫 How to reach me,You already did!
